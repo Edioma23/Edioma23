@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **ediomaangelamae@gmail.com**
 
-- ⚡ Fun fact **Sleep in 2 days**
+- ⚡ Fun fact **about me is asleep in 2 days**
 
 <p align="left">
 </p>
